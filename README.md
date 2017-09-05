@@ -1,4 +1,4 @@
 
 Personal Website repo
 
-http://pramodmekapothula.com
+http://yashwantvadlamani.com
